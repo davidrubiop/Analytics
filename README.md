@@ -17,8 +17,5 @@ Feel free to contact me at any time: https://www.linkedin.com/in/davidrubiop/
 Sincerely,
 
 David Rubio
-MSc in Business Analytics
-MSc in International Business
-BSc in Computer Engineering
 
 
